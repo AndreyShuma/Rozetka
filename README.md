@@ -1,2 +1,0 @@
-# Rozetka
-bla-bla-bla
